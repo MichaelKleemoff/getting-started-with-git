@@ -1,2 +1,3 @@
-Talking with Ken
-another change
+Talking with Ken.
+
+Another change I made.
