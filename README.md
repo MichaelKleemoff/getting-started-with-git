@@ -5,7 +5,6 @@
 ## Welcome Mr. Andersen
 
 <br />
-___
 
 ![white rabbit](https://modernpaintbynumbers.com/wp-content/uploads/2020/10/alice-in-wonderland-white-rabbit-paint-by-numbers.jpg)
 
